@@ -4,7 +4,7 @@
 
 Feriado 
 
-## Práctica - 22 / 08
+## Práctica - 22 / 08
 
 Lectura propuesta el 16 / 08. 
 
